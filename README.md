@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AkameBYTES, The Kng of The Kings
+- 👋 Hi, I’m @AkameBYTES, The King of The Kings
 - 👀 I’m interested in anything in my taste lol
 - 🌱 I’m currently learning with myself (just kindding XD)
 - 💞️ I’m looking to collaborate on myself ;-;
